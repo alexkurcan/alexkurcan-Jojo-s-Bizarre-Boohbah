@@ -1,1 +1,1 @@
-# alexkurcan-Jojo-s-Bizarre-Boohbah
+# alexkurcan-Jojos-Bizarre-Boohbah
